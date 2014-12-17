@@ -3,7 +3,7 @@
 
 ###Thursday 18th Dec 1800-1900
 
-Name 1:  
+Name 1:vinitha  
 Name 2:  
 
 ##
